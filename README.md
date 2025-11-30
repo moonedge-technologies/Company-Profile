@@ -74,5 +74,10 @@ To empower businesses with trusted technology services and help them create mean
 
 For collaboration, development, or partnership inquiries, reach out to MoonEdge Technologies.
 
-> *"Empowering Innovation. Delivering Excellence."*
+Email: contact@moonedge-tech.com
+Phone: +1-234-567-8901
+
+"Empowering Innovation. Delivering Excellence." For collaboration, development, or partnership inquiries, reach out to MoonEdge Technologies.
+
+"Empowering Innovation. Delivering Excellence."
 
